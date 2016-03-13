@@ -1,2 +1,3 @@
 # Hello-World
-Hi i am new to this , so let me go through it fast
+hey i am doing this for the first time
+i think i can do this because you are able to make do this ....
